@@ -1,0 +1,2 @@
+# smsquaredmailtech
+our startup
